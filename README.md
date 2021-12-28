@@ -1,2 +1,2 @@
-# Prince
-Tahtamoni
+# khuoloudm@gmail.com
+Medoklo
